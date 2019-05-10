@@ -61,5 +61,8 @@ https://www.np360.com.hk/en/
 ## Suicide Cliff hiking
 https://thisgirlabroad.com/suicide-cliff-hike-hong-kong/
 
-18. Shing Mun Reservoir
+## Shing Mun Reservoir
 Парк с дикими обезьянками.
+
+## The Mills
+Арт объект. Бывший трекотажный завод.
