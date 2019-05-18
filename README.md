@@ -66,3 +66,10 @@ https://thisgirlabroad.com/suicide-cliff-hike-hong-kong/
 
 ## The Mills
 Арт объект. Бывший трекотажный завод.
+
+## Nan Lian Garden
+Очень красочное место. Храм в городе.
+
+## Noah's Ark
+
+Необычная идея отеля в стиле Ноев Ковчега, также интересен сам Ma Wan как остров для жизни.
