@@ -73,3 +73,9 @@ https://thisgirlabroad.com/suicide-cliff-hike-hong-kong/
 ## Noah's Ark
 
 Необычная идея отеля в стиле Ноев Ковчега, также интересен сам Ma Wan как остров для жизни.
+
+## Sky 100 Hong Kong Observation Deck
+
+https://sky100.com.hk/
+
+Наверное нету пиздатее места чтобы с высоты птичьего полета взглянуть на сам Hong Kong Island. Вид просто восхитительный!
