@@ -79,3 +79,6 @@ https://thisgirlabroad.com/suicide-cliff-hike-hong-kong/
 https://sky100.com.hk/
 
 Наверное нету пиздатее места чтобы с высоты птичьего полета взглянуть на сам Hong Kong Island. Вид просто восхитительный!
+
+## Hong Kong observation wheel
+
