@@ -61,8 +61,8 @@ https://www.np360.com.hk/en/
 ## Suicide Cliff hiking
 https://thisgirlabroad.com/suicide-cliff-hike-hong-kong/
 
-## Shing Mun Reservoir
-Парк с дикими обезьянками.
+## Kam Shan Country Park
+Shing Mun Reservoir. Парк с дикими обезьянками.
 
 ## The Mills
 Арт объект. Бывший трекотажный завод.
